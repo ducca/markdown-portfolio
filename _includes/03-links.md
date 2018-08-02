@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[LinkedIn URL](https://www.linkedin.com/in/noriko-iizuka-65118740/)
